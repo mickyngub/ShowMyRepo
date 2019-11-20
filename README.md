@@ -1,6 +1,1 @@
-# ShowMyRepo
-
-# gammygamm 
-
-# kkkkkkkk
-# natttt
+#gammmm
